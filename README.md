@@ -1,3 +1,4 @@
+something i made for my goofy lil friends https://rentry.co/thegoofies
 cis male unlabled(male pref 😭) ....
 
 hmu if ur lightskin 🔥 (sin city wasnt made for u.... ANGELS LIEK UUUUUUUUUUU)
